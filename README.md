@@ -14,3 +14,7 @@ What are the three most important tools/strategies you use for organizing your w
 * I have a calendar of when things are due
 * I use a planner to plan out my days
 * I go to help hours as often as i can
+
+
+
+I think all of this is interesting and I think the same organization tools are very useful
